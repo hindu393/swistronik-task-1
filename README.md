@@ -1,1 +1,0 @@
-# swistronik-task-1
